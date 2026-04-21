@@ -1,6 +1,6 @@
 # Olá, me chamo Matheus Azevedo! 🕊️🕊️
 
-## Seja bem vindo ao meu perfil do github!
+## Seja bem vindo ao meu perfil de estudos no github!
 
 ## Sociais
 
